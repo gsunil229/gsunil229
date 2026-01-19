@@ -37,7 +37,7 @@
 
 ## 📫 How to Reach Me
 - 📧 Email: **gsunil229@gmail.com**
-- 💼 LinkedIn: *(add your LinkedIn link here)*
+- 💼 LinkedIn: *([here](https://www.linkedin.com/in/sunil-gupta-81b00118a/))*
 
 ---
 
